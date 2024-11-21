@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @lipeb0rges
+- 👀 I’m interested in games, health, cooking, sports.
+- 🌱 I’m currently learning HTML, CSS.
+- 📫 How to reach me @lipe.b0rges or felipe.borges.0904@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I'm attending nursing school 
